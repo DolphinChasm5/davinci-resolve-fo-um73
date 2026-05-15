@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with exclusive DaVinci Resolve for PC | DaVinci Resolve for Windows Overlay | color-correction + collaboration-tools,
 
 
 
